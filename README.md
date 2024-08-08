@@ -1,4 +1,4 @@
-# JeremyBKhusial.github.io
+# Jeremy Khusial
 👋 Hi, I’m @JeremyKhusial, an undergraduate student at Baruch College pursuing my bachelor's in mathematics.
 👀 I’m interested in learning and creating projects using data science and machine learning methods.
 🌱 I’m currently learning about gaussian mixture models
