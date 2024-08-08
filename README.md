@@ -5,4 +5,4 @@
 📫 How to reach me: Hijer501@gmail.com
 😄 Pronouns: He/Him
 ⚡ Fun fact: I'm a huge fan of sports and in particular love the Knicks
-My Linkedin is: https://www.linkedin.com/in/jeremy-khusial/
+My LinkedIn is: https://www.linkedin.com/in/jeremy-khusial/
